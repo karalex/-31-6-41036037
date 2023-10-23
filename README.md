@@ -1,4 +1,5 @@
-# Kruchinin Ilia + Karabanov Aleksi = 750 €
+# Kruchinin Ilia - Karabanov Aleksi = - 
+750 €
 Kruchinin 
  укладывает новый ламинат
 ремонтирует велосипеды
